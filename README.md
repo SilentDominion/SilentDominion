@@ -1,8 +1,7 @@
 #hey there 🌘
 # 🩸 Silent Dominion
-
-> Quiet as blood, strong as night.  
-> Noise begs to be relevant, Silence just signs the contract.
+ 
+> **Noise begs to be relevant, Silence just signs the contract**
 
 ---
 
