@@ -1,4 +1,4 @@
-helooiii Evryone 💤
+.helooiii Evryone 💤
 
 Before I introduce myself, I wanna tell you about Silent Dominion — an idea that began with a simple “what if?” and somehow turned into an entire world of possibilities.
 
@@ -13,9 +13,9 @@ IT'S STILL IN PROGRESS ✌️ STAY TUNED
 
 STAY CONNECTED --📍
 
-- IG: [@silent_dominion](https://instagram.com/silent_dominion)  
+- IG: [@silent_dominion]https://www.instagram.com/the.silent.dominion.official?stkn=MXhodTE1b3F6N21rcw==
 - Telegram: 
 - Website: Coming soon...  
 
 ---
-⚡ *Power speaks in silence. Welcome to the Dominion.*
+
